@@ -1,0 +1,1 @@
+# Dasturiy_taminnot_qurilmasi_evolyutsiyasi
